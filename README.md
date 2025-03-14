@@ -1,0 +1,1 @@
+# notebook-lenovo-ideapad-1i-i5-1235u-e-bom
